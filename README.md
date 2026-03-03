@@ -42,7 +42,7 @@ A principal tecnologia citada é trabalho com bancos de dados — o que pode inc
 
 ***
 
- job description completa:
+ JOB Description Completa:
 
  Aqui está uma **Job Description completa**, clara e profissional, baseada em tudo o que você definiu durante a entrevista estruturada:
 
